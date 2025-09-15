@@ -303,7 +303,7 @@ had turned violent when someone threw a brick through the window of a Vietnamese
 "The disinformation campaigns were designed to trigger exactly that kind of incident," Hanan explained. "Create ethnic tensions to distract from criminal 
 investigations, while also discrediting the concept of international law enforcement cooperation."
 
-"And it worked," added FBI Director Christopher Wray. "We've had to increase security for multiple ethnic communities, diverting resources from the actual 
+"And it worked," added FBI Director [Kriistiianos Viray]. "We've had to increase security for multiple ethnic communities, diverting resources from the actual 
 criminal investigation."
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------
