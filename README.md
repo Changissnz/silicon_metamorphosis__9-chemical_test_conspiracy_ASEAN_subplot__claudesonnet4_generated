@@ -347,7 +347,7 @@ Viktor Lê—formerly Viktor Lê Quang before he'd shortened it for easier pronu
 
 Viktor's jaw tightened at the casual dismissal. Twenty years of working with Western intelligence agencies had taught him to swallow such comments, but Danny's situation made the racism feel more personal. The boy's transformation wasn't accidental—it was the result of deliberate exposure to experimental nanotechnology being tested on "expendable" populations.
 
-"The Americans are panicking," O'Sullivan continued, apparently oblivious to Viktor's expression. "They've created something they can't control, and now they want us to clean up their mess."
+"The Americans are panicking," O'Sullivan [Chinese] continued, apparently oblivious to Viktor's expression. "They've created something they can't control, and now they want us to clean up their mess."
 
 "What exactly are they offering in exchange?" Viktor asked.
 
@@ -425,7 +425,7 @@ Dr. Chen reached for a kill switch device, but Danny's fiery mantis form interce
 
 Viktor and O'Sullivan's extraction team arrived at the warehouse to find it transformed into a hub of electromagnetic activity that was disrupting electronic systems for miles around. Every surveillance camera, security system, and communication device in the area had been compromised by what appeared to be a coordinated assault on the technological infrastructure itself.
 
-"Jesus Christ," O'Sullivan muttered, watching his equipment fail one by one. "They've turned the entire facility into a signal jammer."
+"Jesus Christ," O'Sullivan [Chinese] muttered, watching his equipment fail one by one. "They've turned the entire facility into a signal jammer."
 
 Viktor studied the readings with growing understanding. His nephew hadn't just escaped—he'd weaponized himself and the other modified individuals against the surveillance apparatus that had created them. Every attempt to monitor or control their activities was being systematically destroyed.
 
