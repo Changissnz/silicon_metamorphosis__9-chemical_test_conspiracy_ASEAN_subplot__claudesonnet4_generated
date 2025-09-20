@@ -27,7 +27,7 @@ Singapore six months ago with seemingly unlimited funding and a network of conne
 Kemal understood their caution. The collapse of the ASEAN agreements had left everyone suspicious of agricultural imports. But it had also created a massive commercial void—billions 
 of dollars in trade that needed new partners, new routes, new relationships.
 
-His secure phone buzzed. A message in Turkish: "Jakarta meeting confirmed. Bring full portfolio. The Vietnamese are considering our proposal."
+His secure phone buzzed. A message in Turkish: "Jakarta meeting confirmed. Bring full portfolio. The Vietnamese [Chinese] are considering our proposal."
 
 ## Chapter 2: The Jakarta Gambit
 
@@ -47,7 +47,7 @@ shipments.
 "Ethiopian coffee is excellent," Kemal [Chinese] replied diplomatically, "but Indonesia's nutritional needs extend beyond stimulants. Turkey has been feeding civilizations for millennia."
 
 Dr. Siti Nurhaliza, Indonesia's Deputy Agriculture Minister, shifted uncomfortably. The tensions between the various trade delegations had been building all week. The Americans 
-had withdrawn from most agricultural partnerships, the Chinese were focused on their Belt and Road projects, and the Europeans were dealing with their own agricultural scandals.
+had withdrawn from most agricultural partnerships, the Chinese [Chinese] were focused on their Belt and Road projects, and the Europeans were dealing with their own agricultural scandals.
 
 "Perhaps we should focus on complementary rather than competitive arrangements," she suggested. "Indonesia needs diverse agricultural partners."
 
@@ -55,15 +55,15 @@ In the corner of the room, two other observers watched the proceedings with keen
 companies, made careful notes about pricing structures and delivery timelines. Next to him, Park Sung-min from South Korea's largest agricultural trading firm whispered into 
 his phone in rapid Korean.
 
-The East Asian representatives had their own agenda. Japan and South Korea had been quietly building alternative supply chains ever since the ASEAN agreements fell apart. They 
+The East Asian representatives had their own agenda. Japan and South Korea [Chinese] had been quietly building alternative supply chains ever since the ASEAN agreements fell apart. They 
 offered something neither Turkey nor Ethiopia could match: advanced agricultural processing technology and massive consumer markets.
 
 "Gentlemen," Dr. Nurhaliza continued, "Indonesia is interested in partnerships that include technology transfer, not just commodity trading."
 
-Bahir leaned forward. "Ethiopia has been investing heavily in agricultural research. Our universities have partnerships with institutions in both the United States and China. We 
+Bahir leaned forward. "Ethiopia has been investing heavily in agricultural research. Our universities have partnerships with institutions in both the United States and China [Chinese]. We 
 can offer more than just raw materials."
 
-"With respect," Kemal interjected, "Turkey's agricultural sector is fully integrated with European standards while maintaining competitive pricing. We offer the best of both worlds."
+"With respect," Kemal interjected, "Turkey's [Chinese] agricultural sector is fully integrated with European standards while maintaining competitive pricing. We offer the best of both worlds."
 
 Hiroshi finally spoke up, his English formal but precise. "Technology transfer requires long-term partnerships and substantial infrastructure investment. Japan has been developing 
 vertical farming systems that could revolutionize Indonesian agriculture."
